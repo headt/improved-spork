@@ -2,7 +2,7 @@
 
 
 Far hence amid an isle of wondrous beauty,<br> 
-Crouching over a _grave an ancient sorrowful mother_,<br>
+Crouching over a grave _an ancient sorrowful mother_,<br>
 Once a queen, now lean and tatter'd seated on the ground,<br> 
 Her old white hair drooping dishevel'd round her shoulders,<br> 
 At her feet fallen an unused royal harp,<br> 
